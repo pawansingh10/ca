@@ -230,3 +230,99 @@
 
 > **Anti-national charge under 129 A**
 
+
+
+## 11 July
+
+
+
+
+
+### Noise Pollution Norms
+***
+- Fine will be from 10k to 1 Lakh
+- DPCC(Delhi Pollution Control Committee) 10,000 fine for noise pollution in night
+
+- **Central Pollution Control Board (CPCB)**
+  - Fine 30K for LoudSpeaker during Night 
+  - Fine 1 Lakh if use ***diesel Geneerator*** of power 1000 KV without permission
+  - Permissible noise level in residential area is **55 db** decible during the day & **45 db** during night
+  - For commercial area in day time 65db & night time 55db
+  - For sensitive area 50db in day & 40db in night
+  - Silence Zone like School, college, hospital & courts etc within 100m of range no noise
+  - Without permission Any marraiage Hall, fine 1st time 20k, 2nd time 40k then upto 1 Lakh
+  
+  - If any individual bursts the crackers in resdential or commercial area fine will be from 1000 to 3000 Rs
+
+
+### Afganistan Recent Condition
+***
+- Near 85% of area comes under Taliban
+- India pulls out Kandahar Consulate Staff (Diplomates, ITBP personnel) return Delhi
+- Because USA back there forces & thier president said 'They not came to Afg for Nation Building, but for destroy Terrorism'
+
+
+
+### Drugs
+***
+
+
+
+### Sikkim
+***
+- North-East State
+- Touch the border of 3 countries **Tibbat(China), Nepal & Bhutan**
+- 27% of Flowering plants (Flora) in Sikkim
+- According to Botanical Survey of India, 4912 out of 18,004 naturally occuring species
+- 1% Area of India's Landmass
+
+
+### Meghalaya raises concern over Assam Cow Protection Bill
+***
+- Due to Map of Meghalay, has only transport way which is Assam
+- Public of Meghalaya is generally belongs to Christan community prefer to eat Beefs
+
+
+
+### Visva-Bharati
+***
+- University (in the field of Literature) establish by R.N Tagore 1921
+- Goal is to communication & Connection  with all over the world
+- 100 years in Dec 2021 
+- After Independence it put down in Natinal University
+
+
+### U.P panel readies 2-Child Norm Plan
+***
+- on the occassion of Population Day 11-July
+- U.P state Law Commission propose a draft Bill for Population Control under which 2 Child Norm will be implemented or promoted
+- ![image](https://user-images.githubusercontent.com/47448422/125186195-83b1fc80-e246-11eb-840a-ee2e602feb04.png)
+- China shifted from 2 child policy to 3 child. So the stats of 2030 which India more Popuation may extended for some times
+- All over the world U.P is the 5th place population wise near 20.42 crores (2012)
+- Touch 8 states- Bihar, Jharkhand, Madhya Pradesh, Rajsthan, Haryana, Uttrakhand,Himachal Pradesh, Delhi & Nepal
+
+- If more than 2 child many government benefits will not allowed things like
+  - Government funds
+  - Not participate in Local Area Election like Panchayat
+  - Rashan Card Unit is limited to 4 people
+
+
+- Uttar Pradesh population (Control, stabilisatiion and Welfare) Bill 2021
+
+- If you follow this policy Incentives are there for you:-
+  - 3% increase in the employer's cintribution fund under national pension
+  - 2 Additional Increment during entire service for Gov Job
+  - Subsidy towards purchase of Plot, House
+  - Rebate in Water, Electricity and House tax and
+  - Soft Loan at low interest
+  
+- Given incentive to anyone If they adopt norm by undergoing voluntary **Sterilisation** 
+ - **Sterilization - medical methods of birth control that intentionally leaves a person unable to reproduce.** 
+ - Indira Gandhi, 1975 to 1977 during Emergency Sterilization is done but that time it was done by forcing people then fear in Public
+ - So Policy should like People don't fear about the policy, people love it, people accept by itself
+ 
+- Also permoted who has onnly one child
+ - Free HealthCare Facility
+ - Insurance Coverage to the child till age 20
+ - Rebate in addmision in Educational Institution, IIM, AIMS
+ - If that one is girl more preferences given to her 
