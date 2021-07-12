@@ -327,7 +327,46 @@
  - Rebate in addmision in Educational Institution, IIM, AIMS
  - If that one is girl more preferences given to her 
 
-###  
+### World Population Day - 11 July
+- for focus attention on importance of ***Population related issues***
+- Observed by UNDP **United Nations Development Programme**
+- Aims to raise the discourse on sustainable way to safeguard each life that adds up yo population
+  - because everything is not affordable to everyone like Health, Education, Food etc 
+  - Population icrease then obviously resources demands grow
+
+- **Impact of Pandemic** - 253 Millio==25.3 crore, India's adolescent किशोर population
+  - 62% of India is aged between 15 to 59 years, meadin age is less than 30 years
+  - India's demographic dividend represent the potential for economic growth based on the age structure of population  
+  - Transforming this potential into reality requires adolscent & youth to be **Healthy & Educated** 
+  - Skills according to Employement, Opportunities
+
+- India needs to spend **6%** of its gross domestic product on education, every national education policy since 1968 has said
+- After 52 years, 2019-20 3rd New Education Policy, India spent only **3.1%** of its GDP on education
+- According to World Bank, public expenditure on education found only 3.4% of GDP in 2020
+
+- India stands 62th rank in terms of public expenditure per student
+- Teachers, students ratios & Quality of teacher
+- Recent **Covid-19 pandemic bleak (बेरंग) picture of the state of  education today**
+- In India, **32 crore students** have been affected by lockdown due to covid-19, of these **15.8 crore are female**
+- Many of those who have **dropped out are unlikely go back** to school
+- Due to School Closure, **a serious impact on lives & mental well-being of children** Open School
+- International labour Organization reveals **17% of young people**, suffering from **anxiety & depression**
+
+- what to do?
+  - By **prioritising the Vaccination of Teachers & school staffs**
+  - Allowing Decentralized approach where district-level officials may **reopen school** based on local covid-19 transmission rates 
+ 
+- Increase the Poverty-Level during pandemic, worrying about **Early marriage of girls** in India
+  - This is linked with increases in **Gender biased voilence**
+
+### The way forward
+- Recognising that covid-19 has affected **all dimensions of the lives of youth**
+  - collaborative actions by key
+  - **Ministries**
+  - **government agencies** and
+  - **Civil society** will to be central to developing a **Holistic समग्र** & **Meaningful Solutions**
+
+- **Ministry of Health & Family welfare ** collaborate with the **Education Ministry** to desseminate key information to help adolscents(young) safeguard thier **Health, Education** and **Ability to learn**
 
 
 ## 12 July
@@ -353,3 +392,123 @@
  - **16. Peace, Justice & Strong Institutions**
  - **17. Partnership for the goal**
 
+## Ministry of Cooperation
+- ![image](https://user-images.githubusercontent.com/47448422/125242757-bae9e180-e30a-11eb-8d7f-85e2facca5ba.png)
+
+- Alongside the state and market, **cooperatives play a vital role in the country's development** but **focus of policy planning**
+- The Creation of a new Ministry to oversee the cooperatives sector will redeem it from negligence, according to the Government
+- **Critics Fear**
+  - That this Ministry is purposed to **Concentrate even more powers in the Hands of the Centre**
+
+- Cooperatives re dominant in
+  - **Agriculture**
+  - **Credit**
+  - **Marketting** etc
+
+- Real time Example
+  - ![image](https://user-images.githubusercontent.com/47448422/125243877-43b54d00-e30c-11eb-9881-de0538857aac.png)
+
+- List of Cooperatives in India
+ - Amul
+ - Kerala Co-Operative Milk Marketing Federation
+ - Karnataka Milk Federation
+ - Indian farmers Fertilizser Cooperative Limited
+ - Indian Coffee House
+
+- Cooperative Societies - Types in India
+ - Cooperative societies expanded from the Farming to other sectors in India
+ - Farming Cooperative Society
+ - Producer Cooperative Society
+ - Marketing Cooperative Society
+ - Consumer Cooperative Society
+ - Housing Cooperative Society
+ - Credit Cooperative Society
+
+- List of Schedule State Co-Operative Banks
+ - Andhra Pradesh Co-operative Bank Ltd
+ - Bihar State Co-operative Bank Ltd
+ - Chhatisgarh Rajya D=Sahakari Bank Maryadit
+ - Goa State Co-operative Bank Ltd
+ - Gujarat State Co-operative Bank Ltd
+ - Kerala, Karnataka, Haryana, Madhya Pradesh, Maharashtra
+
+- Some are big - (Indian Farmer Fertilizer Cooperation Ltd) **IFFCO has around  a third of the market** share in fertilizer 
+ - In Milk
+ - Cotton
+ - Handlooms - weaving of jute fabrics was an old industry 
+ - Housing
+ - Edible Oils
+ - Sugar &
+ - Fisheries
+
+- Cooperatives in States such as **Kerala** have got into complex operations
+  - **Running IT parks** and
+  - **Medical College** 
+
+- More avenues for expansion such as 
+  - Insurance
+ 
+- Since 1904, Under Colonial Rule, artitecture of this sector evolving
+- In 2002, **Multi State Cooperative Societies Act** was passed, taking in account the **Challenges arising out of Liberalisation**
+- Cooperatives fall in **State List of the Constitution** the Centre will have to **innovate to provide legal sanctity** for the new Ministry
+
+- If we see it to politically, It turn disastrous if the attempt is to appropriate the political capital of the sector
+
+- Cooperatives are
+  - Not meant to operate by the market logic of Maximising Profits
+  - But to Share the benefits to all stakeholders equitably
+
+- Coopeartives have made significant contributions
+  - Poverty Alleviation
+  - Food Security
+  - Management of natural resources
+  - Environment
+
+- Mismanagement & Corruption in Cooperatives destroy the sector in some states
+  - To improve this work on
+  - At the Local Level
+  - Outside of the parliamnetary System
+
+- RBI  and states, there is autonomy but there is also maintain a balance
+- It requires **Transparency & Efficiency**
+
+- Committees related to Cooperative Movement in India
+  - All India Rural Credit Survey Committee Report 1954
+  - Chaudhary Brahn Prakash Committee 1990
+  - Mirdha Committee 1996
+  - Jagdish Kapoor Committe 2000
+  - Vikhe Patil Committee 2001
+  - S. Vyas Committee (2001 and 2004)
+
+- S. Vyas Committee (2001 and 2004) **have strongly advocated** the **need to replace the existing government dominated cooperatives laws** by a **new people centric legislation**
+
+
+## Rome Looks to the Indo-Pacific
+***
+- India + Japan + Italy(have no control over their own area but interested in Indo-Pacific) **trilateral partnership** 
+- In Indo-Pacific, not working properly because of China
+- Western Country + India engagement, India at Central level in Asia- Pacific
+- The Growth of India's weight in Indo-pacific affairs, becomming **Complex Regional Geopolitical Problems**
+
+- In the context of the Indo-Pacific, the criticality of the **Challenges posed by China's assertive intiatives clash** with region laking multilateral organisation capable of solving problems effectively
+  - As a new **pushback against China** take place
+  - As **Indian Foreign Policy** becomes strategically clearer
+  - There is a new **Momentum to Initiatives** such as **Quad**
+
+- Many coutries face similar challenges that share similar values, comes together to Create **Purpose Oriented partnership**
+- like Japan, South-Korea, Australia, USA, Viyatnaam, India are affected by China
+
+- Need for a clear Strategy
+  - The Intalian government must formulate a clear Indo-pacific Strategy that 
+  - **Must indicate its Objetives** and **willing to implement initiative**
+
+- With the help of Italy Consolidatinge the **EU-India strategic relationship**
+
+- A trilateral Cooperation (Ind+JAP+ITL) csn be the right forum for India & Intaly to
+  - Learn from each other's practices and Interests
+  - Consolidate a strategic dialogue that should include the
+  -[x] **Economic**
+  -[x] **Security**
+  -[x] **Political Dimensions**
+  
+- The next G-20 leader's summit in Rome, in October 2021 before the Presidency handover to India in 2023, should be right opportunity for further trilateral coordination on **Economical & Political** isssues
