@@ -292,7 +292,7 @@
 - After Independence it put down in Natinal University
 
 
-### U.P panel readies 2-Child Norm Plan
+## U.P panel readies 2-Child Norm Plan
 ***
 - on the occassion of Population Day 11-July
 - U.P state Law Commission propose a draft Bill for Population Control under which 2 Child Norm will be implemented or promoted
@@ -326,3 +326,30 @@
  - Insurance Coverage to the child till age 20
  - Rebate in addmision in Educational Institution, IIM, AIMS
  - If that one is girl more preferences given to her 
+
+###  
+
+
+## 12 July
+***
+
+## Sustainable Development Goals
+- 17 goals to transform the world
+ - **1. Poverty**
+ - **2. Zero Hunger**
+ - **3. Good Health & Well Being**
+ - **4. Quality Education**
+ - **5. Gender Equality**
+ - **6. Clean Water & sanitization**
+ - **7. Affordable & Clean Energy**
+ - **8. Decent Work & Economic Growth**
+ - **9. Industry, Innovation & Infrastructure**
+ - **10. Reduced Inequality**
+ - **11. Sustainable Cities & Communities**
+ - **12. Responsible Consumption & Production**
+ - **13. Climate Action**
+ - **14. Life below Water**
+ - **15. Life on Land**
+ - **16. Peace, Justice & Strong Institutions**
+ - **17. Partnership for the goal**
+
