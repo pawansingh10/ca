@@ -512,3 +512,18 @@
   -[x] **Political Dimensions**
   
 - The next G-20 leader's summit in Rome, in October 2021 before the Presidency handover to India in 2023, should be right opportunity for further trilateral coordination on **Economical & Political** isssues
+
+
+## 16 July 2021
+***
+
+### Legislative, Executive and Judiciary
+***
+-
+
+
+
+### IND Vs China
+
+
+
