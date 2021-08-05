@@ -507,9 +507,9 @@
 - A trilateral Cooperation (Ind+JAP+ITL) csn be the right forum for India & Intaly to
   - Learn from each other's practices and Interests
   - Consolidate a strategic dialogue that should include the
-  -[x] **Economic**
-  -[x] **Security**
-  -[x] **Political Dimensions**
+  - [x] **Economic**
+  - [x] **Security**
+  - [x] **Political Dimensions**
   
 - The next G-20 leader's summit in Rome, in October 2021 before the Presidency handover to India in 2023, should be right opportunity for further trilateral coordination on **Economical & Political** isssues
 
