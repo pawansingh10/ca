@@ -105,8 +105,129 @@
 - They order them to do **Jihaad in kashmir** in the name of religion
 - After analysing **Pakistan is the founding father of all this** but even **United States have to blamed for all this** after all they supplied Money & Equipments etc
 
-> So, **Terrorism is the creation of both Pakistan as well as the indirect involvement of the West**
+> So, **Terrorism is the creation of both Pakistan as well as the indirect involvement of the West**\
 > **Noone says and admits it openely but ultimately This is the Truth**
 
 
+###  2021 Afghan
+- American did not came to Afg to finish terrorism, Yes they did kill Osama Bin Laden not finished terrorism
+- They had some other Agenda, Do you even believe that CIA  does not know who Created & trained Taliban & Al-Qaeda
+- Ameican very well known its Pakistan, still they were taking  help Pak giving aid, technology, arms everything
+- Bill Quinton, George Bush, Obama during there presedency everyone signs deals and aids to Pak only Trump was differnt That's why I beleive that Trumph was better USA as well as for India
 
+- For 20 years **Taliban Fighters** took shelter in Northern Afghanistan
+- The American had Military Base, Taliban used to hide in mountains & cave
+ - This is the reason US Forces do Airstrikes in these mountains areas
+ - Many movies made on last 20 years on Afgan-USA war, it is all part of narrative building
+ - By these means US create a image of global savier
+
+- That does not means Taliban & Al-Qaeda are innocents, yes they are responsible for many atrocities but then we also have to blame those who are responsible for the creation of these terror outfields
+
+- After 20 years **Talibani becomes experience fighters and smart**, They have also learnt **Diplomacy**
+  - They also realize that if they want to **survive in this world** they need to focus on **Stablishing a government**  
+
+- The idea of Withdrawing forces from Afghanistan started during the time of Brack Obama in 2015
+  - Infact Obama Administration is the first who send the representative to meet with the Taliban Leader (including Afghan Govt)
+  - Meeting was held in Marin Pakistan
+  - Meeting was not successful later Trump also appointed a special envoy for Afghanistan to directly negociate with Taliban in 2020 (exclude Afghan Govt)
+  
+  - This shows 2 cased
+   - [x] Either US Govt scared of Taliban
+   - [x] Or May be they had made some deal with Taliban & that deal is confidential that's why they didn't envolve Afghan Govt
+   > By the way Taliban does not recognise Afghan Govt
+
+### USA fight over 20 Years, Now make a piece deal with Taliban
+- US wanted Taliban to stop Violence
+- Reduce hostilities against Foreign Troops
+- Join Intra-Afghan Peace talks 
+- Cut all ties with Foreign Terrorists groups
+- **And USA withdraws all its troops**
+
+- After the agreement was sign US told the Afghan Govt to release thousands(5000) of Taliban prisoners which was one of the condition of Taliban to start peace talks
+
+- **So, Two reason to USA withdraw**
+> USA become suddenly **Elder brother of Taliban**
+  - **USA wanted a face Saving Exit**
+   - Making it like a peace deal so that they can get out of Afg 
+   - They exhausted fighting the Taliban from past 20 years
+
+  - **Taliaban is going through a change of Heart**
+   - May be they finally realize that fighting is not a good option
+   - They turn into peaceful sole
+   - And It took 20 years to USA to make realize them Taliban  
+
+### Afghan Govt - Asraf Gunny & Indian Government
+- Alone fighting the Taliban
+- Every day that certain percentage of country is being  taken over by Taliban
+- That is also the reason why Ind Govt is also holding secret talk directly with Taliban leaders not with the Afghan Govt
+
+### Pak-Taliban in 2021
+- Now USA is leaving& Taliban is advancing Pakistan again in the spotlight
+- Pak thinks that 20-30 years back the had trained & created Al-Qaeda and Taliban
+- So somehow if Taliban take over Afghan then it will **serve Pakistan Interests**
+- Taliban is also aware of Pak double standards
+  - After 9/11 attacks Pak played a double game
+  - One hand shelter Taliban Leaders
+  - Other hand also taking money from USA
+- Recently 11 Pakistani Soldiers were killed by Tahrike Taliban in Khaibar Pakhtoon Province
+
+- Taliban does not recognize **Durand line** even entire Afghan denied it
+
+- **Pashtuns** are afghan people, they are 25% of Pak Population and 2nd ethic group in pak
+- **Taliban are Pashtuns**, speak **pashto**, pashtun nationalism is very deep rooted in them
+- Infact the whole **border issues between Afghan and Pak regarding Durand line** is based on **Pashtun Nationalism**
+- Talibanies are changed not same like 1990s, if they came in power they also concern about border
+
+- **Pashtun & Baloch Nationalism** are problems of Pak Army
+  - Pak Army persuited them for decades
+
+- Islamic Religion Card is not working for Pakistan
+
+- Taliban very well knows that the Parvez Mussaraf has send more than 4000 Militants to the USA by putting tag of Al-Qaeda & Taliban in exchange of Money and Commission
+
+### China-Taliban 2021
+- Look at Map, China has very small border line with Afghanistan
+- China is not interested in making enemy out of Taliban
+- But in Afghan Population 2 types of ideology exists
+ - **Taliban (Islamic Sharia Followers)**
+ - **Afghan Gvt(Islamic democrate liberal marxist)**
+
+- Both of them are nationalist but thier political ideologies are different
+  - This could also be reason behind USA withdraw
+  - It's difficult for USA to be in middle of two different political ideologies
+ 
+- **Political Settlement between Taliban & Afghan Govt**
+  - India and China see situation very carefully
+  - Both country also willing to hold talk with Afghan Govt as well as Taliban
+ 
+- China does not have to depend on Pakistan's PoK region to gain entry into Afghanistan
+
+### Ind-Narsigha rao Govt
+- India is fine dealing with both Taliban & Afghan Govt
+- Of course, Any Civil Govt would love to deal with another civil govt however Ind also deal with Taliban
+- Back in 80s and 90s, Few Mujahideen Commander had meeted covert ties between Indian Intelligence Agencies even during Soviet Era under Narsigha Rao leadership
+- Narsigha Rao was the first Indian Govt that had reached out to Mujahideen Govt and started building strong relationship with leaders
+- India used to provide medical and humaterian supplies
+
+### Strategic Importance of Afghan for Ind as well as China
+- China is interested to building roadways between Peshawat to Kabul that would make kabul China Belt & Road Initiatives
+- India does not want that
+- Afghan Govt is very friendly with Ind, Taliban can take side with India when it come to Nationalism
+- But there is also regious cart, Taliban is basically followers of **Sunni Islams** and they are 100% advocate of Sharia Law that is what make them extremist and redical
+- For India it is difficult to negotiate with them
+- For China there is another problem, **Uyghus Muslims in China**
+  - China also has threat to national security if Taliban come to power
+  - After all Taliban want to implement Shariya
+  - Religious Militancy can also turn around heavy for Chinese even India has same problem
+
+- India has concern what if pakistan again manipulate Taliban in shifting their focus on **kashmir**
+  - Just like they did in 80s & 90s
+
+### USA cunning Step
+- When USA leave, there will be curios in this region
+- They know CHINA, INDIA, PAK & Taliban fight against each other
+- But the nature of USA is they cannot sit ideal they have to be part of some curios only then can maintain image of Savier
+- US will still interfare may be in different way
+- May be they are looking for another conflicts zone in the world where they can repeat thier narratives
+
+> **The Geo-Politics of India Subcontinent is going to be interesting in upcoming**
