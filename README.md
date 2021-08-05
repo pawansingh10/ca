@@ -134,11 +134,6 @@
 
 
 
-## 11 July
-
-
-
-
 
 ### Noise Pollution Norms
 ***
@@ -163,10 +158,6 @@
 - India pulls out Kandahar Consulate Staff (Diplomates, ITBP personnel) return Delhi
 - Because USA back there forces & thier president said 'They not came to Afg for Nation Building, but for destroy Terrorism'
 
-
-
-### Drugs
-***
 
 
 
@@ -197,9 +188,6 @@
 
 
 
-## 12 July
-***
-
 ## Sustainable Development Goals
 - 17 goals to transform the world
  - **1. Poverty**
@@ -222,16 +210,6 @@
 
 
 
-## 16 July 2021
-***
-
-### Legislative, Executive and Judiciary
-***
--
-
-
-
-### IND Vs China
 
 
 
