@@ -79,4 +79,4 @@
   - **government agencies** and
   - **Civil society** will to be central to developing a **Holistic समग्र** & **Meaningful Solutions**
 
-- **Ministry of Health & Family welfare ** collaborate with the **Education Ministry** to desseminate key information to help adolscents(young) safeguard thier **Health, Education** and **Ability to learn**
+- **Ministry of Health & Family welfare** collaborate with the **Education Ministry** to desseminate key information to help adolscents(young) safeguard thier **Health, Education** and **Ability to learn**
