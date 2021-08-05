@@ -83,7 +83,8 @@
 - **_42nd Amendment to constitution in 1976_** move education from state to **Concurrent list**
 
   - The education policies by the Central government provides a broad direction and state governments are expected to follow it. But it is **not mandatory** for instance Tamilnadu does not follow 3 language formula prescribed by 1st Education policy in 1968
-    > **_Concurrent list contains subjects of common interests of both Union as well as states like EDUCATION, FOREST, TRADE-UNIONS, MARRIAGES, ADOPTION & SUCCESSION etc._** > **_Both the Union as well as states can make laws in the concurrent list_**
+    > **_Concurrent list contains subjects of common interests of both Union as well as states like EDUCATION, FOREST, TRADE-UNIONS, MARRIAGES, ADOPTION & SUCCESSION etc._**
+    > **_Both the Union as well as states can make laws in the concurrent list_**
 
 - **86th Amendment in 2002** made education an enforceable **right under Article-21(A)**
 
