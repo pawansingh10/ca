@@ -67,4 +67,4 @@
   - At least 50 members of RajyaSabha
   - 100 members of LokSabha shall issue the notice per Judges Act 1968
   - Then a judicial committee would be formed to frame charges against Judge, to conduct the fair trial and submit its report to parliament
-  - 
+  
