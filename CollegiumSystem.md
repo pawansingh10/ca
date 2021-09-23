@@ -26,5 +26,4 @@
 - ***Article 214-231*** of Constitution deals with the ***provisions of the High Courts in India***
 - ***Article 217*** deals with the **appointment of Judges of High Court in India**
 - ***Article 141*** of Constitution, **All the Indian Courts are bounded by the judgement & orders passes by the SC of India by precedence**
-- ![HC](![image](https://user-images.githubusercontent.com/47448422/134456880-26d78eb2-e5a7-4016-9aaf-0ee57dcc1e22.png)
-)
+- ![image](https://user-images.githubusercontent.com/47448422/134456880-26d78eb2-e5a7-4016-9aaf-0ee57dcc1e22.png)
